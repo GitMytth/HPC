@@ -1,4 +1,3 @@
+![newplot](https://github.com/user-attachments/assets/d8605973-a331-431f-9d78-9ccc92887aa5)
 
-![newplot (1)](https://github.com/user-attachments/assets/dd0424cd-2c09-41dc-a1e0-d551023fb912)
-
-![newplot](https://github.com/user-attachments/assets/58af699a-37f7-4fdb-add8-4cf27b848528)
+![newplot (1)](https://github.com/user-attachments/assets/8af6a0aa-af2d-4cd1-a735-0c9be3e3bc35)
